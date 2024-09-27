@@ -11,3 +11,8 @@ ternyata benar adanya "setiap masa ada orangnya dan setiap orang ada masanya" ju
 terimakasih banyakk buat kenangan nya yaa, ga cukup 1 kata terimakasih buat menggambarkan kehangatan kaliann dan keberuntungan bisa bersama kaliann, sekali lagii love you guysss ‼️, semoga kita bisa jaga silaturahmi kita yaa, supaya tidak asing selanjutnya, see u di versi terbaikk 💗
 
 salam astragos lovers 🥹💗
+
+--------
+
+sumber: channel "our life 🐾": https://whatsapp.com/channel/0029VaUa7Ga9Gv7S090X4K0n
+by : cici, tata, rifa, vinza
